@@ -1,0 +1,1 @@
+# takada.github.io
